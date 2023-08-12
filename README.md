@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @DeepaliKumari12345678
+- 👀 I’m interested in Real World Projects
+- 🌱 I’m currently learning B.Tech
+- 💞️ I’m looking to collaborate on web development 
+- 📫 reach me with my linkedln account - https://www.linkedin.com/in/deepali-kumari-075730238
